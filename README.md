@@ -1,1 +1,2 @@
-# Hay semua aku Radya
+# | Hay semua aku Radya |
+---------------------------:
