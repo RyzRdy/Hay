@@ -1,2 +1,2 @@
-# Hay
-Semua
+# Maklum ga tau github :")
+
